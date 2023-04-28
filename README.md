@@ -48,8 +48,8 @@ For More Details [click Here](https://drive.google.com/file/d/1Y_rrJqbp2ax2gT7N_
 **Note:** Maximum number of team per college is 3.
 
 #### 7. Face Painting
-Students can form a team of 2 individuals including one artist and one model. The artist can showcase his/her skills by creating a unique and creative face painting design on the given theme within the allotted time of 1 hour. Designs must be painted on the face. Hair styling/decoration will not be taken into consideration for judging. Additional painted area on the neck are allowed and can be considered, but is not mandatory. 
-Own materials... 
+Students can form a team of 2 individuals including one artist and one model. The artist can showcase his/her skills by creating a unique and creative face painting design on the given theme within the allotted time of 1 hour. Designs must be painted on the face. Hair styling/decoration will not be taken into consideration for judging. Additional painted area on the neck are allowed and can be considered, but is not mandatory.Participants should use thier own materials for the competition.
+
 
 **Note:** Maximum number of team per college is 2.
 
