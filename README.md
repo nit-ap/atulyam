@@ -14,8 +14,21 @@ This will be a team-based competition with each team consisting of 3 members. Th
 
 #### 3. Poetry Slam:
 This competition is open to individuals who have a passion for poetry. Participants will have 3 minutes to perform their original poem on stage.
+1) Choose one of your poems to perform.
+2) It's mandatory that the poem should belong to you. Any kind of plagiarism found would result in immediate disqualification.
+3)  You should choose and send one of your poems to the coordinators of this event before 1st May, 2023, 11:59 pm. Anymore entries will not be accepted after the specified time.
+4) The poem can be in any language either Hindi or English. 
 
-**Note:** Maximum number of individuals per college is 2.
+Criterias on which the judgement will take place-
+1) Density of the poem- 
+The major criteria on which you will be judged is the density of your poem and the impact you cause on the audience and the judge through your poem.
+2) Authenticity - 
+The poem should strictly belong to the reciter/participant. If found otherwise, immediate disqualification will be done. 
+3) Presentation/ body language-
+Your way of presentation and your body language will also be taken into account.
+
+The ultimate victory in competition is derived from the inner satisfaction of knowing that you have done your best and that you have gotten the most out of what you had to give. So if you want to convert your perspective into proper writing we bring to you "POETRY SLAM" event as a part of 'atulyam 23'.Grab the opportunity and enlighten the atmosphere with your magical words on this 5th of May!!
+
 
 #### 4. Sketching: 
 Participants can showcase their sketching skills by creating a sketch on the given theme within the allotted time of 2 hours.
