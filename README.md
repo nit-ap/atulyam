@@ -56,7 +56,10 @@ Students can form a team of 2 individuals including one artist and one model. Th
 #### 8. Solo Song
 Participants can showcase their singing skills by performing a solo song of their choice on stage. 
 Duration: The duration of the performance should be between 3-5 minutes.
-**Note:** Maximum number of individual per college is 2.
+
+For More Details [click here](https://drive.google.com/file/d/1W7w-wcOeNK3fQssOBEPN-qXMaO07qoLR/view?usp=sharing) 
+
+**Note:** Maximum number of individual per college is 3.
 
 
 
