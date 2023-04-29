@@ -3,7 +3,7 @@
 ### Event Guidelines 
 
 #### 1. Modern Dance:
- Students can form teams of 5-10 members and perform a modern dance routine on stage. The duration of the performance should be between 3-5 minutes.
+ Students can form teams of 3-12 members and perform a modern dance routine on stage. The duration of the performance should be between 3-5 minutes.
 
 **Note**: Maximum number of team per college is 1.
 
