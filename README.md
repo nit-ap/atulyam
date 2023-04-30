@@ -8,7 +8,11 @@
 **Note**: Maximum number of team per college is 1.
 
 #### 2.  Quiz:
-This will be a team-based competition with each team consisting of 3 members. The questions will be based on general knowledge, current affairs, sports and comics. 
+This will be a team-based competition with each team consisting of 2 members. The questions will be based on general knowledge, current affairs, sports and comics. 
+
+For More Details [click Here](https://drive.google.com/file/d/1so6-bp7Qk236h4Aca1xzbu_SnHXiQ8eq/view?usp=sharing)
+
+
 
 **Note**: Maximum number of team per college is 1.
 
