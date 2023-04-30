@@ -36,9 +36,9 @@ Maximum number of individuals per college is 3.
 
 #### 5. Short Film Shooting: 
 Short film making is an art form that condenses captivating storytelling into a compact format, allowing filmmakers to experiment and showcase their talent with creative brevity.
-**Theme:** The theme of the short film should be based on the 1st day of the fest i.e. 5th of May
+**Theme:** The theme of the short film should be based on the 1st day of the fest i.e. 4th of May
 
-**Submission:** The short film should be submitted by 1 pm of 6th May**
+**Submission:** The short film should be submitted by 1 pm of 5th May**
 
 **Late Submission:** Late submission will lead to the disqualification of the team.
 
